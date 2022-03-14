@@ -1,1 +1,1 @@
-Replace this with a link to your a GitHub or social media profile.
+You can check out profile link or [github.com/ArchithaKV](https://github.com/ArchithaKV) and say hello on linkedin [linkedin.com/ArchithaKV](www.linkedin.com/in/architha-k-v-2083701b7)
